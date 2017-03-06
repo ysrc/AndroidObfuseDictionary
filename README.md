@@ -12,4 +12,4 @@
 
 ### 效果图
 
-![](http://p1.bqimg.com/567571/568c664446eb37a1.png)
+![](http://i1.piimg.com/567571/95ef0825e76d158e.png)
